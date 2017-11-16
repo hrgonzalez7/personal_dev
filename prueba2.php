@@ -1,0 +1,1 @@
+Npi idea de instancia a 
